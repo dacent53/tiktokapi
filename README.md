@@ -3,8 +3,8 @@ tiktok x-ladon, tiktok x-argus, tiktok x-gorgon, tiktok x-khronos, tiktok device
 # TikTok Private API
 
 ### contact me
-**Contact for api :** [https://t.me/dacent53](https://t.me/dacent53)
-## telegram: @dacent53
+**Contact for api :** [https://t.me/dacent87](https://t.me/dacent87)
+## telegram: @dacent87
 
 # Tiktok (Source Code)
 * Private API
@@ -41,9 +41,9 @@ tiktok x-ladon, tiktok x-argus, tiktok x-gorgon, tiktok x-khronos, tiktok device
 22. create accounts
 
 ### contact me
-## Contact Telegram [@dacent53] 
-https://t.me/dacent53
+## Contact Telegram [@dacent87] 
+https://t.me/dacent87
 
 ### contact me
-## Contact Telegram @dacent53
-https://t.me/dacent53
+## Contact Telegram @dacent87
+https://t.me/dacent87
